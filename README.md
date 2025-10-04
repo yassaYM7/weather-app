@@ -13,14 +13,6 @@ ________________________________________________________________________________
 
 ![GIF_20240929_080335_935](https://github.com/user-attachments/assets/46d2eebc-fc4b-4ffe-be48-d359d81d0acb)
 
-______________________________________________________________________________________________
-### Screenshots
-
-![WhatsApp Image 2024-09-29 at 08 09 18_c62d6e70](https://github.com/user-attachments/assets/de4c9d0d-2c87-4b8a-bef5-2c1b4f2c39c7)
-![WhatsApp Image 2024-09-29 at 08 09 19_1c94aab5](https://github.com/user-attachments/assets/67170def-dc50-4cb3-b726-9007a291e6b7)
-![WhatsApp Image 2024-09-29 at 08 09 19_19e3939e](https://github.com/user-attachments/assets/b8aef8da-d6f7-4171-99a5-70b9e459de07)
-
-
 _______________________________________________________________________
 
 
